@@ -9,4 +9,4 @@
 - foi criada em Los Angeles, Califórnia
 - o cantor da musica é braileiro e se chama Victor Borba
 
-[jackpot](https://media.tenor.com/tSqREvcxFMAAAAAC/dmc-dmc5.gif)
+[jackpot]https://media.tenor.com/tSqREvcxFMAAAAAC/dmc-dmc5.gif
