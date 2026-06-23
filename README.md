@@ -9,4 +9,4 @@
 - foi criada em Los Angeles, Califórnia
 - o cantor da musica é braileiro e se chama Victor Borba
 
-[jackpot](https://media.tenor.com/tSqREvcxFMAAAAAC/dmc-dmc5.gif)
+[jackpot](https://tenor.com/pt-BR/view/jackpot-devil-may-cry-devil-may-cry-5-dante-sparda-dmc-gif-6086334044936008508)
