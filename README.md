@@ -1,4 +1,4 @@
-# Bury the Ligh
+# Bury the Light
 ## the
 ### Light
 
