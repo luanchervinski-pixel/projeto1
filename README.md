@@ -9,4 +9,5 @@
 - foi criada em Los Angeles, Califórnia
 - o cantor da musica é braileiro e se chama Victor Borba
 
-![jackpot](https://media.tenor.com/5CgP0vcFTfcAAAAC/devil-may-cry-dmc.gif)
+
+![jackpot](https://media.tenor.com/TECGpP3WQNcAAAAd/devil-may-cry.gif)
